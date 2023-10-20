@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AntonioJesusCantalejoHerrera
 - 👀 I’m interested in your soul
 - 🌱 I’m currently learning 3D modeling/animation
-- 💞️ I’m looking to collaborate on 3D thind
+- 💞️ I’m looking to collaborate on 3D things
 - 📫 How to reach me ..., jajaja, you can`t
 
 <!---
